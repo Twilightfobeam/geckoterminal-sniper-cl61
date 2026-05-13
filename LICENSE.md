@@ -1,4 +1,4 @@
-# 
+# updated geckoterminal sniper bot | arbitrage-opportunities + dex-sniping offers the most advanced geckoterminal sniper bot, with arbitrage-opportunities and dex-sniping. Ideal for
 
 
 
